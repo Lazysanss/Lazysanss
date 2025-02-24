@@ -11,4 +11,4 @@
   
 <h5 align="center"> 
 
-[𝚁𝚎𝚗𝚝𝚛𝚢.𝚌𝚘](https://rentry.co/Shadzzz) ✦ [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://sansyy.atabook.org/)
+[𝚁𝚎𝚗𝚝𝚛𝚢.𝚌𝚘](https://rentry.co/Lanceshadzzz) ✦ [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://sansyy.atabook.org/)
